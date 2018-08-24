@@ -1,2 +1,0 @@
-Professora da área de TI ou Projetista de Cabeamento Estruturado 
-SENAI, FURUKAWA, FUJIKURA, SUMITOMO, AGC Telecom, FLUKE Networks, IDEAL, Legrand, IBM.
